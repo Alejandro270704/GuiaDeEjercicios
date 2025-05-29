@@ -10,3 +10,8 @@ La natación es un ejercicio completo que trabaja todo el cuerpo, mejora la resi
 1. Realiza un calentamiento previo fuera del agua con estiramientos suaves.  
 2. Nada durante al menos 20-30 minutos alternando estilos (crawl, espalda, pecho, braza).  
 3. Finaliza con un enfriamiento nadando suavemente y estiramientos fuera del agua.
+## Consejos  
+- Usa gafas de natación para proteger tus ojos.  
+- Mantén una respiración rítmica y controlada.  
+- Aumenta la intensidad progresivamente para evitar lesiones.  
+- Hidrátate antes y después de nadar, aunque no sientas sed.  
