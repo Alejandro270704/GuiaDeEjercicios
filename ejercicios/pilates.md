@@ -72,3 +72,11 @@ Si eres principiante, comienza con los ejercicios básicos y aumenta la dificult
 Consulta con un instructor de pilates para aprender las técnicas correctas y evitar lesiones.
 Escucha a tu cuerpo y no te fuerces si sientes dolor.
 Realiza los ejercicios de forma regular para obtener mejores resultados. 
+## Consejos
++ Concentración. Es básica a la hora de ejecutar los movimientos. 
++ Control. Al método Pilates se le denomina también “contrology” 
++ “contrología”. 
++ Precisión. 
++ Fluidez de movimiento. 
++ Respiración. 
++ Centralización.
