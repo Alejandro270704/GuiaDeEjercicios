@@ -20,3 +20,13 @@ Mantén cada postura durante un tiempo adecuado, generalmente entre 5 y 10 respi
 
 Relajación:
 Termina la práctica con una relajación profunda, como la postura del niño o la postura del cadáver. 
+## Consejos
++ Busca un espacio tranquilo: Elige un lugar donde puedas concentrarte sin distracciones. 
+
++ Prepara tu espacio: Utiliza una esterilla de yoga para una superficie cómoda y antideslizante. 
+
++ Elige ropa cómoda: Vístete con ropa deportiva o específica para yoga que te permita moverte con libertad. 
+
++ Estira antes de comenzar: Realiza algunos estiramientos suaves antes de iniciar la práctica. 
+
++ No practiques con el estómago lleno: Es recomendable no practicar yoga con el estómago completamente vacío o lleno. 
