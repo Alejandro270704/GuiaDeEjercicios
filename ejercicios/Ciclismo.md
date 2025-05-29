@@ -44,5 +44,13 @@ El ciclismo es una actividad física que consiste en montar bicicleta para mejor
 + Respeta las normas de tránsito
   Si vas por la calle, sigue las señales de tránsito, usa luces y señaliza tus giros con el brazo.
 
+## Consejos
+1. Establece una rutina de entrenamiento
+
+2. Trabaja tu resistencia y fondo físico
+
+3. Cuida tu alimentación
+
+4. Invierte en un buen equipamiento
 
 
