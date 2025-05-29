@@ -18,3 +18,31 @@ El ciclismo es una actividad física que consiste en montar bicicleta para mejor
 13. Combate la depresión
 14. Reduce los niveles de estrés
 15. Combate la osteoporosis 
+
+## Instrucciones
++ Usa ropa y equipo adecuado
+   Ponte ropa cómoda y transpirable. Usa siempre un casco para proteger tu cabeza. También se recomienda guantes, gafas de sol y calzado deportivo.
+
++ Revisa tu bicicleta antes de usarla
+   Asegúrate de que los frenos funcionen, las llantas estén infladas y la cadena esté en buen estado.
+
++ Ajusta el asiento y el manubrio
+  La altura del asiento debe permitirte estirar casi por completo la pierna al pedalear. El manubrio debe estar a una altura cómoda para mantener una buena postura.
+
++ Calienta antes de comenzar
+  Realiza unos minutos de estiramiento o pedalea lentamente para preparar tu cuerpo.
+
++ Pedalea a un ritmo constante
+  Mantén una velocidad cómoda. No te esfuerces demasiado al inicio, especialmente si eres principiante.
+
++ Mantén una buena postura
+  Mantén la espalda recta y los codos ligeramente doblados. No aprietes demasiado el manubrio.
+
++ Hidrátate durante el recorrido
+  Lleva una botella de agua y bebe cada 15–20 minutos para evitar la deshidratación.
+
++ Respeta las normas de tránsito
+  Si vas por la calle, sigue las señales de tránsito, usa luces y señaliza tus giros con el brazo.
+
+
+
