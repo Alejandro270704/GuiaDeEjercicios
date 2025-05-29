@@ -31,3 +31,8 @@ Entre series, permite que los músculos se recuperen con descansos de 1 a 3 minu
 Antes de cada sesión de entrenamiento de fuerza, realiza un calentamiento de 5 a 10 minutos para preparar los músculos. 
 10. Realiza un enfriamiento posterior:
 Después de cada sesión, realiza un enfriamiento de 5 a 10 minutos con estiramientos para relajar los músculos
+## Consejos
+1. Calentamiento.
+2. Prioriza la técnica.
+3. Programa para el progreso.
+4. Comienza con ritmo.
