@@ -19,3 +19,13 @@ Los ejercicios de flexibilidad, o estiramientos, son ejercicios que alargan los 
 4. Mantén la postura
 5. Respira
 6. Refrigeración
+## Consejos
+1. Muévase con frecuencia. La actividad física regular es fundamental para 
+
+2. mantener sus articulaciones y músculos en buen estado.
+3. Haga estiramientos. 
+4. Fortalezca su musculatura.
+5. Mantenga una buena postura.
+6. Hidrátese adecuadamente
+7. Cuide su alimentación
+8. Descanse lo suficiente
