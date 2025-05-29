@@ -38,3 +38,10 @@ Descansa adecuadamente entre las sesiones de entrenamiento para permitir que los
 Dormir entre 7 y 9 horas diarias es crucial para la recuperación muscular.
 Incluye días de descanso o entrenamientos de baja intensidad en tu rutina.
 Utiliza técnicas de recuperación como estiramientos, masajes o crioterapia. 
+
+## Consejos
+1. Calentamiento.
+2. Prioriza la técnica.
+3. Programa para el progreso.
+4. Comienza con ritmo.
+5. Mantente atento.
