@@ -8,3 +8,10 @@ El boxeo es un deporte de combate que combina técnicas de golpeo, defensa y mov
 - Mejora la coordinación, agilidad y reflejos.  
 - Ayuda a liberar estrés y mejorar el estado emocional.  
 - Promueve la disciplina, concentración y confianza personal.
+## Instrucciones  
+1. **Calentamiento:** Realiza ejercicios articulares, estiramientos dinámicos y saltar la cuerda durante 5-10 minutos.  
+2. **Técnicas básicas:** Practica golpes fundamentales como jab, cross, gancho y uppercut, prestando atención a la postura y la guardia.  
+3. **Combinaciones:** Entrena secuencias de golpes y movimientos defensivos, alternando velocidad y potencia.  
+4. **Trabajo de saco o con compañero:** Golpea el saco o realiza sparring controlado para aplicar las técnicas en movimiento real.  
+5. **Ejercicios de acondicionamiento:** Incluye ejercicios de fuerza, abdominales, sentadillas y cardio para mejorar tu forma física general.  
+6. **Enfriamiento:** Termina con estiramientos estáticos y respiración profunda para ayudar a la recuperación.
