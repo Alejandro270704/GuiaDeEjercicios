@@ -31,3 +31,17 @@ Entrena de 2 a 4 días por semana, dependiendo de tu nivel y capacidad de recupe
 Los ejercicios que involucran varias articulaciones a la vez son más efectivos para el entrenamiento funcional. 
 8. Realiza un circuito de ejercicios:
 Alterna los ejercicios uno tras otro con poco o ningún descanso, y descansa brevemente entre circuitos. 
+## Consejos
+1. º No olvides un pequeño calentamiento con ejercicios amplios de movilidad, sobre todo en columna vertebral y cintura escapular.
+
+2. º No todo es cuestión de fuerza y sufrimiento, en determinados ejercicios es importante la el control postular.
+
+3. º El estiramiento es fundamental, realiza estiramientos suaves entre series, y dedica algo de tiempo al final de cada sesión de entrenamiento para soltar los músculos y favorecer su recuperación.
+
+4. º Controla la fase excéntrica( a favor de la gravedad o frenada del movimiento en si),sobre todo en movimientos de velocidad y fuerza.
+
+5. º Intenta realizar los ejercicios de fuerza cuando no estés fatigado. Entrenar estos ejercicios después de una sesión de entrenamiento intensa de trabajo cardiovascular no es lo recomendado.
+
+6. º Visualiza los músculos implicados, presta atención a las posiciones de tu cuerpo y donde localizas el efecto del ejercicio. Lo mas concentrado posible en tu esquema corporal.
+
+7. º Mantén un orden en tu entrenamiento, estructura tus sesiones,con micro-ciclos y temporadas.Aumenta la dificultada de forma progresiva.
