@@ -33,3 +33,11 @@ Entre series o estaciones, toma pausas breves (30 segundos a 1 minuto) si lo nec
 
 - Termina con un enfriamiento adecuado
 Luego del entrenamiento, baja la intensidad con estiramientos, caminata ligera y ejercicios de respiración para ayudar a la recuperación muscular y evitar dolores post-entrenamiento.
+## Consejos  
+- Aprende bien la técnica antes de aumentar el peso o la velocidad; evita lesiones.  
+- Escucha a tu entrenador y adapta los ejercicios según tu nivel.  
+- No te compares con otros: enfócate en tu propio progreso.  
+- Mantén una buena hidratación antes, durante y después del entrenamiento.  
+- Respeta los días de descanso para permitir que tu cuerpo se recupere.  
+- Usa calzado adecuado que proporcione estabilidad y soporte para levantamientos y movimientos funcionales.  
+- Lleva un registro de tus marcas y repeticiones para ver tu evolución.
